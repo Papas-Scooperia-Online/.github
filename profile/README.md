@@ -8,6 +8,8 @@
 
 This **hyper-casual game** combines **simulation, time management, and puzzle elements** to deliver an experience that’s both relaxing and addictively fun. Even better, you can now play it **unblocked**—**no downloads**, **no limits**, **just pure fun**.
 
+## <a href="https://izigames.net/papas-scooperia/">👉 Click To Play Papa’s Scooperia Unblocked 👈</a>
+
 ---
 
 ## 🚀 Why It’s So Addictive
